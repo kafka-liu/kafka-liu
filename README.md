@@ -1,5 +1,5 @@
 - @kafka-liu
-- Conmunist, Master of International Study
+- Communist, Master of International Study
 - Run, Read, Drive, Travel
 - Whisky, Vodka, some kinds of coaktail
 - Dostoevsky, Kafka, Garcia Marquez
