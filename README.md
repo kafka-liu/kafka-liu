@@ -1,0 +1,9 @@
+- @kafka-liu
+- Conmunist, Master of International Study
+- Run, Read, Drive, Travel
+- Whisky, Vodka, some kinds of coaktail
+- Dostoevsky, Kafka, Garcia Marquez
+- Marx, Schopenhauer, Nietzsche, 王阳明， Zizek
+- Summer
+- PC, Python, Html, coding
+- Csgo, Horizon5, Sekiro, Nier:Automata
